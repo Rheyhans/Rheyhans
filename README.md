@@ -7,8 +7,6 @@
 
 - 💬 Ask me about **JavaSript**
 
-- 📫 How to reach me **rheyhanalify@gmail.com**
-
 - ⚡ Fun fact **Idk**
 
 <h3 align="left">Connect with me:</h3>
