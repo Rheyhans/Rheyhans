@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Anything**
 
-- 💬 Ask me about **JavaSript**
+- 💬 Ask me **If You wan to Ask XD**
 
 - ⚡ Fun fact **Idk**
 
